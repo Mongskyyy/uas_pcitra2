@@ -1,12 +1,12 @@
 ## Anggota
 
-## Ramadhan Ardi Iman Prakoso   (312210722)
+## Ramadhan Ardi Iman Prakoso  (312210722)
 
-## Anindha Latiefa Zahra    (312210323)
+## Anindha Latiefa Zahra   (312210323)
 
-## Novianto Andi Hardiansyah    (312210316)
+## Zalfa Dewi Zahrani  (312210320)
 
-## Zalfa Dewi Zahrani   (312210320)
+## Novianto Andi Hardiansyah   (312210316)
 
 ## Kelas TI.22.A.3
 
